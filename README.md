@@ -6,17 +6,17 @@
 
 - 🔭. I’m... **.A.**
 
-- 🔯 Learning **: [I will mention]**
+- 🔯 Learning **: [will update soon]**
 
-- ⚛ All of my projects are available at **: ♾[I will mention when needed]♾**
+- ⚛ All of my projects are available at **: ♾[It will update]♾**
 
 - 📝 I regularly write articles on **> ♠ I Suppose Nothing ♠.**
 
 - 🔺Can get information about [.Computer Science, Software engineering, Ai, programming , App development ,Database , Front and Backend development, Frame works etc.(related)](.Computer Science, Software engineering, Ai, programming , App development ,Database , Front and Backend development, Frame works etc.(related))
 
-- 📄 Know about my experiences : [♾[I will mention when needed]♾]
+- 📄 Know about my experiences : [♾[will update soon when i will be properly experienced]♾]
 
-- 💲💱 Earning Platform **: [I will mention when needed]**
+- 💲💱 Earning Platform **: [currently don't have]**
 
 - 📫 How to reach me **.♠ No requirements to reach at me ♠.**
 
