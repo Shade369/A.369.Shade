@@ -10,7 +10,7 @@
 
 - ⚛ All of my projects are available at **: ♾[It will update]♾**
 
-- 📝 I regularly write articles on **> ♠ I Suppose Nothing ♠.**
+- 📝 I regularly write articles on **> ♠ currently not working professionally , Just learning ♠.**
 
 - 🔺Can get information about [.Computer Science, Software engineering, Ai, programming , App development ,Database , Front and Backend development, Frame works etc.(related)](.Computer Science, Software engineering, Ai, programming , App development ,Database , Front and Backend development, Frame works etc.(related))
 
