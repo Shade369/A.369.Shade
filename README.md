@@ -1,16 +1,16 @@
 ![logo](https://github.com/Shade369/A.369.Shade/blob/main/g.h.p.jpg)
-<h1 align="center"> ♠  Night.Shade.963.A. ♣</h1>
+<h1 align="center"> ♠  𝔑𝔦𝔤𝔥𝔱.𝔖𝔥𝔞𝔡𝔢.963.Δ. ⚫</h1>
 <h3 align="center">.Pleasure to meet you.</h3>
 <img align="right" alt="Venture" width="350" src="https://github.com/Shade369/A.369.Shade/blob/main/tumblr_pppp9jBpkX1w3y4ilo1_640.gif">
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=shade369&label=Profile%20views&color=0e75b6&style=flat" alt="shade369" /> </p>
 
-- 🔭. I’m... **.A.**
+- 🔭. It's_ **.𝔖𝔥𝔞𝔡𝔢.  **
 
-- 🔯 Learning **: [will update soon]**
+- 🔯 Learning **: [will be updated Later]**
 
-- ⚛ All of my projects are available at **: ♾[It will update]♾**
+- ⚛ All of my projects are available at **: ♾[will be updated]♾**
 
-- 📝 I regularly write articles on **> ♠ currently not working professionally , Just learning ♠.**
+- 📝 I regularly write articles on **> ♠ not working professionally , Marely Aquiring ♠.**
 
 - 🔺Can get information about [.Computer Science, Software engineering, Ai, programming , App development ,Database , Front and Backend development, Frame works etc.(related)](.Computer Science, Software engineering, Ai, programming , App development ,Database , Front and Backend development, Frame works etc.(related))
 
@@ -18,9 +18,9 @@
 
 - 💲💱 Earning Platform **: [currently don't have]**
 
-- 📫 How to reach me **.♠ No requirements to reach at me ♠.**
+- 📫 How to reach me **.♠ requirements to reach at me will shown up ♠.**
 
-- ♠♟♠. It's not.. **. Unreal .∑.**
+- ♠🌑♠. 
 
 <h3 align="left">Connect with me.</h3>
 <p align="left">
