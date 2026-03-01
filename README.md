@@ -1,12 +1,12 @@
 ![logo](https://github.com/Shade369/A.369.Shade/blob/main/g.h.p.jpg)
-<h1 align="center"> ♠  Ɲ𝔦𝔤𝔥𝔱.𝔖𝔥𝔞𝔡𝔢.𝟗𝟔𝟑.Δ. ⚫</h1>
+<h1 align="center"> 🌑  Ɲ𝔦𝔤𝔥𝔱.𝔖𝔥𝔞𝔡𝔢.𝟗𝟔𝟑.Δ. 🌑⚫</h1>
 <h3 align="center">.Pleased to meet you.</h3>
 <img align="right" alt="Venture" width="350" src="https://github.com/Shade369/A.369.Shade/blob/main/tumblr_pppp9jBpkX1w3y4ilo1_640.gif">
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=shade369&label=Profile%20views&color=0e75b6&style=flat" alt="shade369" /> </p>
 
-- 🔭. ℑ𝔱'𝔰 .𝔖𝔥𝔞𝔡𝔢.  
+- 🔭. ℑ𝔱'𝔰 - 𝔖𝔥𝔞𝔡𝔢 
 
-- 🔯 𝔏𝔢𝔞𝔯𝔫𝔦𝔫𝔤 **: [will be updated Later]**
+- 🔯 𝐋𝐞𝐚𝐫𝐧𝐢𝐧𝐠 **: [will be updated Later]**
 
 - ⚛ All of my projects are available at **: ♾[will be updated]♾**
 
